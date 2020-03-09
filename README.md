@@ -1,0 +1,2 @@
+# Womentechie
+  Here we are using industry leading technologies to accommodate and promote the establishment of Business skills  for rural and needy women who are talented in art and skills but are unable to showcase it due to unavailability of a  proper platform without intervention of third-party brokers. Thus, here our focus is not only on selling the products  but also towards helping them in their start-up plans providing the aid funded by the financiers.
